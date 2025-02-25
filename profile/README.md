@@ -7,7 +7,7 @@
 
   
 </h3>
-<a href="https://classroom-66.pages.dev"><img src="https://clearcache.store/games.png"></a>
+<a href="https://lesson-1-guru.pages.dev/"><img src="https://clearcache.store/games.png"></a>
 
 
 <br>
