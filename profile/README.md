@@ -67,4 +67,5 @@ Tetris is one of the most iconic puzzle games ever created, and its HTML5 versio
 **Why it's popular:** The timeless, simple mechanics and addictive nature of the game have made Tetris a global phenomenon for decades.
 
 ---
+Unblocked Games 76 is a popular online platform offering a wide range of free, unblocked games. Accessible from schools, offices, or restricted networks, it provides various genres, including action, strategy, and puzzles. Players can enjoy these games without worrying about restrictions, making it a fun and accessible option for entertainment.
 
